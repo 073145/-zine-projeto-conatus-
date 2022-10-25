@@ -1,1 +1,1 @@
-# Fanzine Projeto Conatus
+# Solarpunk Zine - Projeto Conatus
