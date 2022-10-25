@@ -1,1 +1,1 @@
-# Zine Projeto Conatus
+# Fanzine Projeto Conatus
